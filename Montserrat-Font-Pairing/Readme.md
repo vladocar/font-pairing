@@ -1,4 +1,4 @@
-![](Montserrat - Merriweather 1.png)
+![]()
 
 
 Montserrat Font Pairing
